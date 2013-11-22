@@ -1,1 +1,1 @@
-## Project Ideas for CodeforGood Campain
+## Project Ideas for CodeforGood Campaign
